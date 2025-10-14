@@ -2,8 +2,8 @@
 
 ### Headline
 
-**Shift from high commissions to freedom with AutoFlot.**
-The smarter way to run your taxi park – affordable subscription, flexible fares, and your own brand in front of passengers.
+**Smarter, Fairer, More Flexible!**
+Stop Paying Heavy Commissions - Switch to Affordable Subscriptions
 
 ---
 
